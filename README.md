@@ -1,4 +1,4 @@
-# ¡Hola! 👋 Soy Paty Dixon
+# ¡Hola! 👋 Soy Patricia Gonzalez
 
 ## 🧪 QA Tester | En Búsqueda de Oportunidades
 
